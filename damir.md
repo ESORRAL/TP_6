@@ -1,0 +1,2 @@
+Bonjour je suis Damir, j'ai 20 ans et je suis passionné par le basket et la MMA. Je fais souvent des lives tiktoks où je fais des pancakes.
+J'ai un gros bazouzou
