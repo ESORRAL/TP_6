@@ -1,0 +1,1 @@
+ce sont des maths appliqué à l'informatique , les professeurs sont pablo seban et remi boule 
